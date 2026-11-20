@@ -1,1 +1,1 @@
-# Mighty-Ducks-Hockey-League
+# Mighty-Ducks-Hockey-League-MindHub
